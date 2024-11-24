@@ -22,6 +22,6 @@ Tools:
 
 🔗 Let's Connect!
 🌐 Portfolio (Coming soon)
-💌 Email: your_email@example.com
+💌 Email: rafiqulislam42002@gmail.com
 ✨ “Keep learning, keep growing!” ✨
 
