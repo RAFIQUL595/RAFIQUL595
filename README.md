@@ -60,5 +60,5 @@ My personal portfolio to showcase my journey, projects, and skills.
 🔗 Let’s Connect
 🌐 Portfolio: (Coming soon)
 💌 Email: rafiqulislam42002@gmail.com
-💼 LinkedIn: (Link coming soon)
+💼 LinkedIn: https://www.linkedin.com/in/rafiqul-islam-16367b196/
 ✨ "The journey of learning never ends. Keep coding, keep growing!" ✨
